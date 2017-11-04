@@ -1,3 +1,5 @@
+# My Lovers
+
 Work flew by. I was so busy I hadn’t eaten all day and when I smelled food upstairs I stopped and my heart fluttered. Nox was home. And then I remembered he wasn’t. But by the time I had remembered that I was upstairs already. Dee was cooking at my stove like Nox used to do. I sighed and she turned around to look at me. “I figured with Nox gone, I could cook for you.”
 
 I kissed her. “Why don’t we go out?”
