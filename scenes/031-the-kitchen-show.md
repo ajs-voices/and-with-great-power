@@ -1,0 +1,23 @@
+# The Kitchen Show
+
+I’d found a dealer in archaic magics. He had the ingredients we needed. Oddly enough it was a man Dean knew. Not exactly sure how or if the man would recognize him, but he and Cass went with the password to get the ingredients. Magnus decided to prepare the concotion with what we had in Nox’s kitchen.
+
+He and Alec were busy upstairs and I stayed down stairs. I wasn’t sure how Nox would feel about his kitchen being used for magic. Because it was his kitchen even though I owned the house. I had never really used my kitchen before him. Now it was one of my favorite places in the house. The island bar stools were comfortably worn now as that’s where we always ate. The fire in the brick oven I had to have was always on, when I lived alone I only lit it once. Nox loved it. He used it for so many things. But Nox loved fire to begin with and cooking on it was one of his little pleasure.
+
+If it weren’t for the kitchen I sometimes thought he’d leave me. Go stay with Dev. But Dev’s place was too crowded and that kept Nox here too. I was jealous. Dev could read his thoughts. Dev got him when no one else did. Dev was always on his side, even against me and Dee. I hated it. I was the reason they were together, I hated that I was jealous, but for as many insecurity as Nox had, and they were many, I had my own issues.
+
+One that I was indulging in while Magnus and Alec were upstairs. I didn’t consider myself an evil person. But I knew I wasn’t the good little boy everyone thought I was. Until Nox I hid my preferences even from myself, saying I was just hacking. That my stalking people, and prying into their private lives was just hacking. I was being bad in doing it but I wasn’t catering to my kinks.
+
+But as with all things, Nox likes to talk about things. Everything - especially sex and what gets us off. At first it was embarrassing. It still is, but Nox never judges me. He just smiles and nods and takes note. He makes me blush when he’ll bring up something I’ve said to get my blood boiling. Wrapping his arms around me from behind, running his long fingers over my stomach and perching just above my belt buckle. He wants to push deeper so bad I can feel him trembling behind me.
+
+I had cameras all over my house. I didn’t normally reveal them to my lovers. I definitely didn’t tell my guests. They were all tied into my security system and that was the lie I told myself when I installed them. It’s just for security. I didn’t live in a high risk neighborhood, but I was a hacker and I had expensive equipment all over the house. I could see any camera from any room in the house with the right password. And I was watching the black and white images of Magnus and Alec in Nox’s kitchen.
+
+It was all very domestic. I’d used the cameras to watch Nox cooking in my kitchen. He’d dance all over and spin. Nox never sang to his music. Dee belted out the lyrics even if she knew her voice was horrible. It didn’t matter. Nox never did. He’d mutter some songs under his breath, but then most of his music didn’t have lyrics, just a heavy beat. Though he was listening more and more to mine and Dev’s play lists. We’d both snuck music on to his phone and he would listen to him. Nox would make fun of the head banging and the mosh pit style dancing but he found himself nodding to the beat and doing less exaggerated movements too. It was hard not to.
+
+My thoughts were making me hard and my hand had strayed to my pants. I wasn’t really paying attention to what was happening on screen. I knew Magnus was stirring the base mixture for our exorcism spell. I hadn’t seen Alec come up behind him. But I noticed now as his hands had snaked around waist and were rubbing Magnus much like I was doing to myself.
+
+The whole thing made me harder. I couldn’t take my eyes off of them. I wished for sound from the cameras. I’d love to hear what they were saying, to hear the moans of pleasure as Alec stroked his lover’s cock. They were being naughty in someone else’s kitchen. That alone had to spark some heat. The idea of being caught was usually also a turn on. Dev and Dee were both exhibitionists, they liked to push me to my limits. To almost get caught. To do bad things to each other in public. Nox was easy any which way. And he wasn’t shy.
+
+I watched Magnus and Alec, they didn’t do anything that if caught couldn’t be easily stopped and covered up. I imagined that Matt was going to have to change his sheets before he slept in them again. If he ever came back.
+
+And just like that I broke my own mood. I’d fucked up. Nox wouldn’t be back in my kitchen dancing around so I could watch him. He was gone, and I’d thrown him out.
